@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/10AvwQQ-ILnshX6hP5Gs_jqo46BJ4raTwffngBR4h8Yo/edit?pli=1](https://docs.google.com/document/d/10AvwQQ-ILnshX6hP5Gs_jqo46BJ4raTwffngBR4h8Yo/edit?pli=1)
 
-- ⚡ Fun fact **I'm a sneaker head 👟**
+- ⚡ Fun fact: **I'm a sneaker head 👟**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
